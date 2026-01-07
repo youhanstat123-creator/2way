@@ -3,6 +3,9 @@
 
 깃 수업한다
 
+안녕하세요 // 조영제
+
+
 Wait a minute, 이게 뭐지?
 내 심장이 lub-dub 자꾸만 뛰어
 저 멀리서도 oh my gosh
@@ -11,4 +14,3 @@ Wait a minute, 이게 뭐지?
 네 모든 게 내 마음에 달라붙어버려 boy 
 We're magnetized 인정할게
 This time I want 
-
